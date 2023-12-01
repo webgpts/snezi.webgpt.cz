@@ -1,0 +1,1 @@
+# snezi.webgpt.cz
